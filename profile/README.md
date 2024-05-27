@@ -1,4 +1,4 @@
-## 🚗 Rally Racer
+## 🚗 RALLY RACERS
 
 <!--
 
